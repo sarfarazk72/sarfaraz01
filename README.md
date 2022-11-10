@@ -1,1 +1,4 @@
-# sarfaraz01
+- HI, i'm @sarfaraz01
+-I,m intrested in cooding.
+-I, m currently learning in bsc-it.
+-I, m intrested for job.
